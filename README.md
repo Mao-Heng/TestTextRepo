@@ -1,4 +1,4 @@
-## YOUR RIGHTS AND THE POLICE - CALIFORNIA
+# YOUR RIGHTS AND THE POLICE - CALIFORNIA
 
 Encounters with the police can be intimidating. People have differing experiences with the police, some
 of which are not always legal. This guide is meant to provide you with information on your rights when
